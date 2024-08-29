@@ -1,4 +1,4 @@
-- 👋 Hello, I'm @PattyRei here and Patty to everyone, everyone, everyone, toddys, nescais, nescafés (lol)
+- 👋 Hello, I'm @PattyRei here and Patty to everyone, toddys, nescais, nescafés (lol)
 - 👀 I'm always interested in sharing knowledge!
 - 🌱 I am currently learning through studying how to Lead Leaders (this is my goal)
 - 💞️ I seek to collaborate with the entire technology community to solve the most varied problems.
